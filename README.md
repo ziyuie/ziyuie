@@ -1,1 +1,1 @@
-hey, i’m @ziyuie but you can just call me ari, i’m interested in gaming and anime and i’m currently learning how to code and japanese. i’m willing to collaborate on almost anything u can think of and u can reach me on discord, sone#1000 <3
+hey, i’m @ziyuie but you can just call me ari, i’m interested in gaming and anime and i’m currently learning how to code. i’m willing to collaborate on almost anything u can think of and u can reach me on discord, sone#1000 <3
